@@ -1,10 +1,7 @@
-- 👋 Hi, I’m @jagadishhu
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-
-thanks for the great oppurtinuty
+Thanks for the great oppurtinuty
+Sucessfully git hub ah clone panita machan you are super da doodueeeeeeeeeeeeeeeeeeeeeee
 Regards,
+Sucessfully git hub ah clone panita machan you are super da doodueeeeeeeeeeeeeeeeeeeeeee
 Jagadish
 Sucessfully git hub ah clone panita machan you are super da doodueeeeeeeeeeeeeeeeeeeeeee
+
